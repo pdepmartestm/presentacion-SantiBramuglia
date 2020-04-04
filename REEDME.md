@@ -7,6 +7,6 @@
 
 Como estas? Primero me presento tengo 26 años y soy recursante de la materia, actualmente vivo en Palermo con mi pareja. Trabajo hace casi un año como desarrollador en Red Link. Programo sobretodo en *C y C++* pero tambien he programado en java y C#.  
 En cuanto a mis gustos, me encanta hacer deporte, sobretodo al __futbol y al voley__. Tambien me gusta leer mucho sobre ciencia y historia sobretodo historia moderna o relacionada a la post IIGM.  
-Tambien me gusta ver seires la ultima que me gusto es esta mierda me supera que esta en netflix. Y peliculas no suelo ver.  
-
+Tambien me gusta ver series la ultima que me gusto es esta mierda me supera que esta en netflix. Y peliculas no suelo ver.  
+Tengo una perra que se llama Curie, la adoptamos con mis hermanos de una hogar de transito hace unos meses. 
 [Mi perfil de Linkedin](https://www.linkedin.com/in/santiago-martin-bramuglia-08089b60/)
